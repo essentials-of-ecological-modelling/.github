@@ -1,4 +1,6 @@
-# [Ode to the Niche     (An Ecologist's Nightmare)](https://www.plexuseco.com/The%20Plexus/po_niche.htm)
+# [Ode to the Niche     (An Ecologist's Nightmare)](https://www.plexuseco.com/The%20Plexus/po_niche.htm)  
+## **Bruce G. Marcot (October, 1983)**  
+
 With hypervolumetric grin  
 I grow more Hutchinsonian  
 Despite intense investigation  
@@ -19,4 +21,4 @@ A tesseract defines the sprawl.
 Yet meaning loses in the end;  
 We've lost the zero origin!   
 
-- Bruce G. Marcot (1983) 
+
