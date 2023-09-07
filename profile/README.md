@@ -1,4 +1,4 @@
-# Ode to the Niche     (An Ecologist's Nightmare)
+# <span style="color:black">[Ode to the Niche     (An Ecologist's Nightmare)](https://www.plexuseco.com/The%20Plexus/po_niche.htm)</span>
 With hypervolumetric grin  
 I grow more Hutchinsonian  
 Despite intense investigation  
