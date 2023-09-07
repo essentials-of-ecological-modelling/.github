@@ -1,12 +1,22 @@
-## Hi there 👋
+# Ode to the Niche     (An Ecologist's Nightmare)
+With hypervolumetric grin  
+I grow more Hutchinsonian  
+Despite intense investigation  
+Of axial proliferation.   
 
-<!--
+Each bird I see expands in place  
+To seventeen-dimension space;  
+And should it light on forest floor,  
+Then axes sprout a dozen more!  
 
-**Here are some ideas to get you started:**
+Euclid would approve with glee  
+How territoriality  
+Of bunting perched upon a stone  
+Is asymptote to hypercone!   
 
-🙋‍♀️ A short introduction - what is your organization all about?
-🌈 Contribution guidelines - how can the community get involved?
-👩‍💻 Useful resources - where can the community find your docs? Is there anything else the community should know?
-🍿 Fun facts - what does your team eat for breakfast?
-🧙 Remember, you can do mighty things with the power of [Markdown](https://docs.github.com/github/writing-on-github/getting-started-with-writing-and-formatting-on-github/basic-writing-and-formatting-syntax)
--->
+And should competing species brawl  
+A tesseract defines the sprawl.  
+Yet meaning loses in the end;  
+We've lost the zero origin!   
+
+- Bruce G. Marcot (1983) 
